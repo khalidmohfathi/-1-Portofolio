@@ -1,1 +1,1 @@
-https://khalidmohfathi.github.io/DevFolio_Portofolio/
+https://khalidmohfathi.github.io/DevFolio_Portfolio/
